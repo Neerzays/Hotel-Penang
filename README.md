@@ -1,1 +1,1 @@
-# Hotel-Penang
+# Hotel Penang
